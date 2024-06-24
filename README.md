@@ -1,3 +1,0 @@
-# Fieldwork
-
-Nothing to say!
